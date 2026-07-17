@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="736" height="272" alt="1000040293" src="https://github.com/user-attachments/assets/098d1c76-8ce2-474f-b84b-12c6d8cdcd6f" />
+
 
 <!--
 **AssasinsBlade/AssasinsBlade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
