@@ -143,3 +143,47 @@ they deserved to survive."
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 <img width="2048" height="1142" alt="1000036728" src="https://github.com/user-attachments/assets/2a8a1df9-82a6-4d46-aaa7-0dd96f6532ea" />
+
+🎧 MUSIC
+
+Current obsession ::
+Give me MORE.
+
+Genres ::
+
+✦ Dark Ambient
+✦ Rock
+✦ Metal
+✦ Indie
+✦ Classical
+✦ Whatever sounds like emotional damage.
+
+╋━
+
+🤍 BEFORE YOU INTERACT
+
+I'll usually match your energy.
+
+Crackhead?
+I'm joining.
+
+Calm?
+Me too.
+
+Deep conversations at 4 AM?
+
+Absolutely.
+
+Dark humor doesn't usually bother me,
+as long as everyone involved is comfortable.
+
+If I ever accidentally make you uncomfortable,
+please tell me.
+
+I genuinely want to know.
+
+╋━
+
+<img width="3000" height="2000" alt="1000039513" src="https://github.com/user-attachments/assets/0d289c14-eb77-42bb-896d-f54249f9c50a" />
+
+
