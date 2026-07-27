@@ -20,7 +20,7 @@ Mission failed successfully.
 <img width="386" height="39" alt="1000040297" src="https://github.com/user-attachments/assets/f3018d44-0fb4-421b-832f-5220535adc89" />
 
 ─────── ⋆⋅☾⋅⋆ ───────
-🕯 Names Azel • Kisiel • Ezra • Daniel
+🕯 Names Azel • Kisiel • Voider • Ewroon
 🦇 Age XVII
 ⚜ Pronouns He/Him • They/Them
 🫀 Languages Polski • English • 日本語 • Español (learning...)
