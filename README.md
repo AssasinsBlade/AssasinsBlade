@@ -64,17 +64,82 @@ I promise I'll listen.
 ━━━━━━━━━━━━━━━━━━
 <img width="736" height="414" alt="1000039110" src="https://github.com/user-attachments/assets/d170c2a2-1d98-4830-8377-a0ca59679246" />
 
-<!--
-**AssasinsBlade/AssasinsBlade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⚜ CURRENT HYPERFIXATION
 
-Here are some ideas to get you started:
+QSMP.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Especially the Polish Husary, The Regime, Foolish, Tina... honestly, I watch far too many POVs.
+
+...and yes.
+
+Ashwron / Assassin Duo owns my heart.
+
+"Two men who never valued themselves enough... yet somehow always found a reason to save each other."
+
+!
+Mission ::
+Survive another day.
+
+Current progress ::
+██░░░░░░░ 21%
+⠀ ⠀ ⠀ ⠀♱ 
+⠀<img width="736" height="245" alt="1000039107" src="https://github.com/user-attachments/assets/bccd18fb-50c3-4eb8-863b-01cd9d3c7668" />
+
+🩸 STATUS.LOG
+
+Occupation ::
+⌲ Cook
+⌲ Voice Actor
+⌲ Lazy Artist™
+⌲ Professional Yapper
+⌲ Minecraft Addict
+⌲ Roblox Enjoyer
+⌲ AO3 Consumer
+⌲ Crow Watcher
+
+⛪ EVEN MORE ABOUT ME
+
+The type of person who accidentally writes
+30 pages of lore at 2 AM.
+
+I LOVE listening to people talk about
+their interests.
+
+Seriously.
+
+Infodump.
+
+Please.
+
+I collect fandoms like they're Pokémon.
+
+If you mention something I know...
+
+Congratulations.
+
+You just unlocked a three hour conversation.
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+⚔ QSMP
+
+Favorite POVs ::
+
+⚝ Polish Husary
+⚝ The Regime
+⚝ Foolish
+⚝ Tina
+⚝ (literally everyone at this point)
+
+Favorite Dynamic ::
+
+Ash × Ewron
+Assassin Duo
+
+"They kept choosing each other,
+even when neither believed
+they deserved to survive."
+
+━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
+
+<img width="2048" height="1142" alt="1000036728" src="https://github.com/user-attachments/assets/2a8a1df9-82a6-4d46-aaa7-0dd96f6532ea" />
