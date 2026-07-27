@@ -35,7 +35,6 @@ Mission failed successfully.
 ✦ If we're friends, expect random lore or music recommendations.
 
 <img width="736" height="422" alt="1000040291" src="https://github.com/user-attachments/assets/edb007ca-7b88-4a36-983b-4161f84338a2" />
-<img width="562" height="736" alt="1000040384" src="https://github.com/user-attachments/assets/18618677-306b-4060-8e3a-cab34ca78067" />
 
 ❦ My personality !!
 Huge yapper.
@@ -44,8 +43,7 @@ Usually matches your energy.
 Sometimes disappears to recharge.
 Not really sensitive to dark humor, though please respect boundaries.
 If I ever seem distant...
-I'm probably just tired.
-Not upset with you.
+I'm prob not upset with you.
 
 ⠀ ⠀ ⠀ ⠀♱ ⠀
 
